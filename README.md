@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @THEBIGKAHUNA829
-- 👀 I’m interested in music
+- 👀 I love art
 - 🌱 I’m currently learning music
-- 💞️ I’m looking to collaborate on music
+- 💞️ I can make custom "cartoonified" cute art! Price will vary.
 - 📫 How to reach me: text me at (402) 982-3260 pls
 
 <!---
